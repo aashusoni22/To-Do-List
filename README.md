@@ -1,1 +1,6 @@
-# To-Do-List
+
+Aashutosh SOni
+
+Canada
+
+META Frontend development professional certificaiton
